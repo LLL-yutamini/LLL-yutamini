@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+一位善于“劳逸结合”的大学生：摸鱼不是偷懒，是在提高效率。
 <!--
 **LLL-yutamini/LLL-yutamini** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
